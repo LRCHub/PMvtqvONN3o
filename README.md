@@ -1,0 +1,111 @@
+# Chase Atlantic – DIE FOR ME
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yeah, hit the gas, ignite it,
+she sniff gasoline (Gasoline)
+Throw it back in private,
+never on the screen, no
+(No, no, no)
+Love the passion, fire,
+high ass self-esteem, yeah
+So outlandish, she said,
+"Fuck me 'til I scream," whoa
+She at the top of her game
+Couldn't give a flyin' fuck
+if I'm famous (Famous)
+Nothin' was ever the same
+Chase in rotation,
+no Drake in her playlist
+(Playlist)
+Fiendin' for money and fame
+She's at a B,
+she's tryna reach A-list
+She want her status to change
+But out of respect,
+I'm keepin' it nameless
+Come on over, baby,
+can you slide for me? Yeah
+You know how I love it
+when you ride on me
+Oh, Lord, I'm in the water,
+take a dive with me, ayy
+Put it on your tongue
+and take a flight with me,
+hol' up
+Pull up, baby,
+I need you to slide on me, yeah
+Jump inside the Jeep
+and take a drive with me
+Good God, she's on the floor,
+rollin' her eyes at me, uh
+Once I get inside,
+she'll wanna die with me, yeah
+Come on over, baby,
+won't you lie? (Yeah)
+Cocaine in my system
+in the driver's seat
+Oh, Lord, I feel the pressure,
+it's surroundin' me
+I'm just tryna live my life
+and die in peace, yeah, yeah
+Stop all the talkin' (Bitch),
+I'm wastin' my damn time
+Yeah, she told me to stop it
+(Told me to stop it)
+She told me to sober up
+Yeah, I told her, "I love it,"
+She said, "I don't give a fuck."
+Yeah, baby. I doubt it
+Baby, I doubt it
+Fly with me
+Parasailin',
+take a glide with me, yeah
+Try for me
+Keep the passion,
+keep on driving me
+Pull up, baby,
+I need you to slide for me
+You know how I love it
+when you ride on me
+Oh, Lord, I'm in the water,
+take a dive with me, yeah
+Put it on your tongue
+and take a flight with me,
+hol' up
+Pull up, baby,
+I need you to slide for me, yeah
+Jump inside the Jeep
+and take a drive with me
+Good God, she's on the floor,
+rollin' her eyes at me, ayy
+Once I get inside,
+you'll wanna die with me,
+yeah, yeah, yeah
+Baby
+(Come on in and fucking drive)
+Baby, yeah
+Once I get inside,
+she'll wanna die with me
+Parasailin',
+take a glide with me, yeah.
+Oh, oh, oh, oh
+(Pullin' her skirt up)
+Yeah, yeah, yeah, yeah
+(I need her in pain)
+Yeah, yeah, yeah, yeah
+(Feelin' for pleasure)
+Yeah, yeah, yeah, yeah
+Yeah, yeah, yeah, yeah
+Yeah, yeah, yeah, yeah
+Baby
+Drive with me
+If I overdose,
+then will you die with me?
+My darlin', lie for me
+Put your left hand on the Bible,
+sell a lie
+If I overdose,
+will you die with me, baby?
+```
